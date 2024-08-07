@@ -9,7 +9,7 @@ I LOVE Billie Eilish (realy) ❤️‍🩹
 i like to play ukulele 🎸
 
 
-my instagram i @mari.brokenhearts follow me! 🍱
+my instagram is @mari.brokenhearts follow me! 🍱
 
 
 can you contact me for my instagram or my email 📫
